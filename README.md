@@ -7,4 +7,4 @@ What makes a toilet normal?
 - soap
 - something to dry your hands with
 
-Let's find out how many toilets in Bulgaria fit this description :)
+Let's find out how many toilets in Bulgaria have all of those combined :)
